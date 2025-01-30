@@ -1,3 +1,3 @@
-t.me/forestarmy 
+https://t.me/forestarmy 
 
-youtube.com/forestarmy
+https://youtube.com/forestarmy
